@@ -6,7 +6,7 @@
 
 Olá!! Tudo bem?
 
-Me chamo Isabela Szolnoky Ferreira Cabral Souza da Conceição, tenho 19 anos e sou natural de São Paulo Capital. Finalizei o Ensino Médio integrado ao Curso Técnico em Administração em 2022 na ETEC Uirapuru. Atualmente, estou cursando ADM Tech no Instituto de Tecnologia e Liderança. Sou apaixona em usar a criatividade em tudo que estiver ao meu alcance, seja em melhoria como pessoa ou em projetos e meios para os clientes.
+Me chamo Isabela Szolnoky Ferreira Cabral Souza da Conceição, tenho 20 anos e sou natural de São Paulo Capital. Finalizei o Ensino Médio integrado ao Curso Técnico em Administração em 2022 na ETEC Uirapuru. Atualmente, estou cursando ADM Tech no Instituto de Tecnologia e Liderança. Sou apaixona em usar a criatividade em tudo que estiver ao meu alcance, seja em melhoria como pessoa ou em projetos e meios para os clientes.
 
 <p align="left">
     </a>
